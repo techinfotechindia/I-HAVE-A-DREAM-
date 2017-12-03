@@ -1,0 +1,2 @@
+# I-HAVE-A-DREAM-
+I Have a Dream is a musical adaptation of the film Mamma Mia. A musical, romantic comedy with foot tapping music by ABBA. It is a simple story of a young girl looking for her father. She has the unique position of choosing from three different men, as to who her father could be! Live music, dance and elaborate sets makes this play an extravaganza worth watching! “I Have A Dream” is a fundraiser play for CAPED as a platform to create awareness on the subject and help raise funds.
